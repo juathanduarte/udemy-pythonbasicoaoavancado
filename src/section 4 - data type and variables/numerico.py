@@ -1,0 +1,1 @@
+#TIPO NUMÉRICO
